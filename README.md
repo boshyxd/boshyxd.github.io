@@ -1,2 +1,0 @@
-# boshyxd.github.io
-yo
